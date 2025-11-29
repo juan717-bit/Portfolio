@@ -1,1 +1,1 @@
-
+Este portafolio reúne todos los certificados que he obtenido a lo largo de mi formación académica y profesional. Cada uno de ellos respalda y valida los conocimientos y habilidades que he desarrollado hasta el momento.
